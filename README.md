@@ -1,0 +1,1 @@
+Using data from the latest flood situation report (26 September 2024), I've visualized the ongoing impact of severe flooding across Myanmar. These floods have affected hundreds of thousands, and I hope these visuals bring clarity to the scale of this crisis.
